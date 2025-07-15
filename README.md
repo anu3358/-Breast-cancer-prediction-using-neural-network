@@ -48,5 +48,12 @@ Because code can be art. And this is my masterpiece.
 
 ---
 
-### 💫 Final Words
+<div align="center">
 
+# 🌟🌟🌟  
+## ✨ *IF YOU APPRECIATE MY WORK PLEASE GIVE STAR ⭐ AND BE MY STAR 🌟* ✨  
+# 🌟🌟🌟
+
+</div>
+
+---
